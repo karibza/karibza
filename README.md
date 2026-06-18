@@ -50,7 +50,7 @@ Also I don't mind black humor so you can tell any jokes around me, even about to
 
 - I love ocs I love hearing about ocs I love original stories so much
 
-- Music bands that I'm listening to currently: **And One**; **Tally Hall** (and members' projects); **Devo** (sometimes); **The Living Tombstone**. (Yeah I love geekmusic)
+- Music bands that I'm listening to currently: **And One**; **Tally Hall** (and members' projects); **Devo** (sometimes); **The Living Tombstone**; **Arthur Pirozhkov**.
 
 - I'm a fan of **Yume Nikki**.
 

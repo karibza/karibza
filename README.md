@@ -1,7 +1,7 @@
 # ◸ OMG IT'S KARIBZAS ◿
-Hi! Yes I'm karibza, also known as: Robert ; NATHF ; je
+Hi! Yes I'm karibza, also known as: NATHF ; je ; Nofinall
 
-There's some information about me as you can see! - Last edited: 05.04.2026
+There's some information about me as you can see! - Last edited: 18.06.2026
 ─────────────────────────────────────────────────────────────────────
 # ◸ About Me ◿
 → I'm 14 years old; I speak Russian and English.
@@ -39,11 +39,9 @@ I sit mostly on Safe server, but I also can be seen on Safe Russian #1
 
 ─────────────────────────────────────────────────────────────────────
 # ◸ DNI list ◿
-I don't have it... I don't really care, I can keep the conversation going with any theme basically, but don't talk about disturbing themes all the time, such as: 18-21+, gore, addictions, firearms(air rifles too), psychologic, mental disorders and their consequences, racism towards any nationality or ethics. 
+I don't have it... I don't really care, I can keep the conversation going with any theme basically, but don't talk about disturbing themes all the time, such as: 18-21+, gore, addictions, firearms(air rifles too), psychology, mental disorders and their consequences, racism towards any nationality or ethics, clear homophobia and transphobia.
 
-You can tell me about: your pronouns, gender, sexuality; I don't mind anyone being LGBTQ+ or having neopronouns, just tell me how to use your pronouns correctly and I'm ok with it! ; disorders or dislikes, I will understand and not push it further, almost no matter about what you have.
-
-Also I don't mind black humor so you can tell any jokes around me.
+Also I don't mind black humor so you can tell any jokes around me, even about topics I listed up here.
 
 ─────────────────────────────────────────────────────────────────────
 # ◸ My Interests ◿
@@ -60,7 +58,7 @@ Also I don't mind black humor so you can tell any jokes around me.
 # ◸ You want to be friends with me? ◿
 And You sure about it?
 
-If you really want to befriend me, then say it right away, because I see that most people is afraid to talk to me, for some reason,,, but you won't make me mad!
+If you really want to befriend me, then freely ask about it! I may be cautious or sometimes agressive at first because I have severe defensive reactions towards strangers, sometimes I can't help it, but I'm trying to be better. This is why I suggest you to W2I me, this way I'm not getting defensive(somehow).
 
-I just don't consider someone a friend if we know each other for less than a couple of weeks and we talked and played together no more than one time. 
+I just don't consider someone a friend if we know each other for less than a couple of weeks and we talked and played together no more than one time, I need quite some time to get used to new people. Just remember it's not your fault!
 <img width="1250" height="250" alt="Без названия716_20251203184724" src="https://github.com/user-attachments/assets/535c4c06-75a2-4dd1-8ff7-2aec651b9690" />

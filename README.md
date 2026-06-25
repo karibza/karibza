@@ -58,7 +58,7 @@ Also I don't mind black humor so you can tell any jokes around me, even about to
 # ◸ You want to be friends with me? ◿
 And You sure about it?
 
-If you really want to befriend me, then freely ask about it! I may be cautious or sometimes agressive at first because I have severe defensive reactions towards strangers, sometimes I can't help it, but I'm trying to be better. This is why I suggest you to W2I me, this way I'm not getting defensive(somehow).
+If you really want to befriend me, then freely ask about it! I may be cautious or sometimes agressive at first because I have severe defensive reactions towards strangers, sometimes I can't help it, but I'm trying to be better. This is why I suggest you to W2I me at first, this way I'm not getting defensive(somehow), and I can be cautious about saying any personal information that is not listed here.
 
 I just don't consider someone a friend if we know each other for less than a couple of weeks and we talked and played together no more than one time, I need quite some time to get used to new people. Just remember it's not your fault!
 <img width="1250" height="250" alt="Без названия716_20251203184724" src="https://github.com/user-attachments/assets/535c4c06-75a2-4dd1-8ff7-2aec651b9690" />

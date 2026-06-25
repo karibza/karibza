@@ -8,7 +8,7 @@ There's some information about me as you can see! - Last edited: 25.06.2026
 
 → I don't mind to talk with you when I'm not busy(offtab) or already talking\sitting with someone else.
 
-→ I use only Telegram and Discord: I also never text on socials first, it doesn't mean I forgot about you or don't want to talk to you; I don't check Discord until I know and sure that someone texted me there, so I sometimes can not respond for weeks.
+→ I don't use many socials: I also never text on socials first, it doesn't mean I forgot about you or don't want to talk to you; I don't check Discord until I know and sure that someone texted me there, so I sometimes can not respond for weeks.
 
 → Sometimes during a game or conversation I can get completely silent or unmoving, it's completely fine! I can still see the screen and I'll get active after some time.
 
@@ -25,17 +25,15 @@ Also, feel free to C+H with me when I'm alone, because I'm probably bored.
 
 ─────────────────────────────────────────────────────────────────────
 # ◸ Zones I sit in PT ◿
-I sit mostly on Safe server, but I also can be seen on Safe Russian #1
+I sit mostly on Safe server yeah
 
 **Country Humans** = I often sit on CH Area with my friends or alone.
 
-**Tally Hall** = I sit on old Tally Hall area (barrel stash area), I'm here with my Russian friends, do not disturb please!
+**Tally Hall** = I sit on old Tally Hall area (barrel stash area), I'm here with my friends, do not disturb please!
 
 **Bakery** = I sit in bakery but you will never know when.
 
 **Library** = If you spotted me here, then I'm probably looking for a chat or more friends.
-
-**Safe Russian #1 Spawn** = I'm sitting here with my friends that I don't see often, do not disturb please, but you still can w2i!
 
 ─────────────────────────────────────────────────────────────────────
 # ◸ DNI list ◿

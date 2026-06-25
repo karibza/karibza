@@ -1,7 +1,7 @@
 # ◸ OMG IT'S KARIBZAS ◿
 Hi! Yes I'm karibza, also known as: NATHF ; je ; Nofinall
 
-There's some information about me as you can see! - Last edited: 18.06.2026
+There's some information about me as you can see! - Last edited: 25.06.2026
 ─────────────────────────────────────────────────────────────────────
 # ◸ About Me ◿
 → I'm 14 years old; I speak Russian and English.
@@ -50,7 +50,7 @@ Also I don't mind black humor so you can tell any jokes around me, even about to
 
 - I love ocs I love hearing about ocs I love original stories so much
 
-- Music bands that I'm listening to currently: **And One**; **Tally Hall** (and members' projects); **Devo** (sometimes); **The Living Tombstone**; **Arthur Pirozhkov**.
+- Music bands that I'm listening to currently: **And One**; **Tally Hall** (and members' projects); **Devo** (sometimes); **The Living Tombstone**
 
 - I'm a fan of **Yume Nikki**.
 

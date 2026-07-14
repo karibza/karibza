@@ -4,7 +4,7 @@ Hi! Yes I'm karibza, also known as: NATHF ; je ; Nofinall
 There's some information about me as you can see! - Last edited: 25.06.2026
 ─────────────────────────────────────────────────────────────────────
 # ◸ About Me ◿
-→ I'm 14 years old.
+→ I'm 15 years old.
 
 → I don't mind to talk with you when I'm not busy(offtab) or already talking\sitting with someone else.
 

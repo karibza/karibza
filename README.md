@@ -24,12 +24,10 @@ I actually use W2I most of the time, even when I'm talking with friends.
 Also, feel free to C+H with me when I'm alone, because I'm probably bored.
 
 ─────────────────────────────────────────────────────────────────────
-# ◸ Zones I sit in PT ◿
-I sit mostly on Safe server yeah
+# ◸ Where I am in PT ◿
+I'm mostly on Safe server yeah
 
 **Country Humans** = I often sit on CH Area with my friends or alone.
-
-**Tally Hall** = I sit on old Tally Hall area (barrel stash area), I'm here with my friends, do not disturb please!
 
 **Bakery** = I sit in bakery but you will never know when.
 
@@ -48,7 +46,7 @@ Also I don't mind black humor so you can tell any jokes around me, even about to
 
 - I love ocs I love hearing about ocs I love original stories so much
 
-- Music bands that I'm listening to currently: **And One**; **Tally Hall** (and members' projects); **Devo** (sometimes); **The Living Tombstone**
+- I listen to whatever music and music bands okok I don't mind any
 
 - I'm a fan of **Yume Nikki**.
 
@@ -56,7 +54,7 @@ Also I don't mind black humor so you can tell any jokes around me, even about to
 # ◸ You want to be friends with me? ◿
 And You sure about it?
 
-If you really want to befriend me, then freely ask about it! I may be cautious or sometimes agressive at first because I have severe defensive reactions towards strangers, sometimes I can't help it, but I'm trying to be better. This is why I suggest you to W2I me at first, this way I'm not getting defensive(somehow), and I can be cautious about saying any personal information that is not listed here.
+If you really want to befriend me, then freely ask about it! I may be cautious or sometimes agressive at first because I have severe defensive reactions towards strangers. This is why I suggest you to W2I me at first, this way I'm not getting defensive(somehow), and I can be cautious about saying any personal information that is not listed here.
 
 I just don't consider someone a friend if we know each other for less than a couple of weeks and we talked and played together no more than one time, I need quite some time to get used to new people. Just remember it's not your fault!
 <img width="1250" height="250" alt="Без названия716_20251203184724" src="https://github.com/user-attachments/assets/535c4c06-75a2-4dd1-8ff7-2aec651b9690" />

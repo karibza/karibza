@@ -1,7 +1,7 @@
 # ◸ OMG IT'S KARIBZAS ◿
 Hi! Yes I'm karibza, also known as: NATHF ; je ; Nofinall
 
-There's some information about me as you can see! - Last edited: 25.06.2026
+There's some information about me as you can see! - Last edited: 29.07.2026
 ─────────────────────────────────────────────────────────────────────
 # ◸ About Me ◿
 → I'm 15 years old.
